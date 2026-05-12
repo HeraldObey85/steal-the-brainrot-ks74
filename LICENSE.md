@@ -1,4 +1,4 @@
-#  
+#  Experience steal the brainrot base like never before with updated steal the brainrot base Script, the #1 Script. Includes auto-collect and private
 
 
 
